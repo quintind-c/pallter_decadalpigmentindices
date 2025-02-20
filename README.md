@@ -1,2 +1,0 @@
-# pallter_decadalpigmentindices
- 
